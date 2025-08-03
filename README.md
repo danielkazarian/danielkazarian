@@ -1,1 +1,1 @@
-Interested in anything SWE, Data Science, and AI | Currently CS @ SCU
+interested in anything swe, data science, and ai/ml | prev cs @ scu
